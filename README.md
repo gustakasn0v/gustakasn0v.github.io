@@ -1,4 +1,4 @@
 # Under construction!
 
-![]()![image](https://github.com/user-attachments/assets/819e629e-66c3-427e-83d7-1fea2f7f9d41)
+![Bitconnect](https://i.kym-cdn.com/entries/icons/mobile/000/025/619/bitconnect-carlos-meme.jpg)
 
